@@ -1,1 +1,1 @@
-# rotary-club-nairobi-industrial-area
+# rotary-club-of-nairobi-industrial-area
